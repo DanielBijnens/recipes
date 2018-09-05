@@ -10,10 +10,8 @@
 - 1/8 teaspoon cayenne pepper
 - 2 cloves garlic, minced 
 - 3 Mint leaves
-
 - tomato and salad
 - 2 slices of cheeze
-
 
 ## Preparation
 
